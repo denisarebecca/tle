@@ -67,7 +67,7 @@ Infections range from mild to fatal.
 <br>the light for the three kings. The light that can let them find their way to the son of God and the savior Jesus Christ.
 <br>Jesus there is the one guiding us all throughout these hard times. Now that we encounter a lot of challenges in life, we hold on to prayer.
 <br>A prayer that can be beneficial to ourselves or to everyone else. The three things mentioned above are hope itself. We pray to them that they 
-<br>should guid us  and let us overcome these obstacle in life.
+should guid us  and let us overcome these obstacle in life.
 <br>
 <a href = "https://youtu.be/-16yOdgAIKc">Our Message of Hope</a>
 
